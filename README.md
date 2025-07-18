@@ -30,3 +30,7 @@ I am seeking to achieve in pursuing a career in pediatric nursing, I aim to prov
   <img width="180" height="180" alt="image" src="https://github.com/user-attachments/assets/f54a3e7c-4d94-45fa-8fe9-e1a30200b041" />
 <img width="240" height="180" alt="image" src="https://github.com/user-attachments/assets/f620e6c2-5d62-4beb-b765-a48c42cfa799" />
 
+
+🌐 Connect with Me
+Instagram-akvfah
+Email- akifahasnat52@gmail 
