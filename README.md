@@ -21,8 +21,9 @@ I am seeking to achieve in pursuing a career in pediatric nursing, I aim to prov
 
 Nonprofit Project 
 https://www.canva.com/design/DAGi8iEc5Ag/JEKebsD6DEuDjQil2f9ruA/edit?utm_content=DAGi8iEc5Ag&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+https://www.canva.com/design/DAGlYsgST-4/XQjWG0dQqI_bYuA6hFE91Q/edit?utm_content=DAGlYsgST-4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
-  Educational/Professional Experiences
+Educational/Professional Experiences
   Resume -
     https://docs.google.com/document/d/1Fljbx34-faLFSZ8Sed6Quewd17Q-wrAoy6YTnGsnl08/edit?usp=sharing
 
