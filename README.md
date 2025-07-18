@@ -41,4 +41,4 @@ Educational/Professional Experiences
 
 Instagram-akvfah
 
-Email- akifahasnat52@gmail 
+Email- akifahasnat52@gmail.com 
