@@ -39,6 +39,6 @@ Educational/Professional Experiences
 🌐 Connect with Me
 
 
-Instagram-akvfah
+Instagram-@akvfah
 
 Email- akifahasnat52@gmail.com 
