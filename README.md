@@ -9,8 +9,6 @@ I am seeking to achieve in pursuing a career in pediatric nursing, I aim to prov
  I'm currently working on creating my own brand and website focused on makeup because I’ve always been passionate about beauty and the art of creating makeup looks. Makeup has been more than a hobby for me, t’s a form of self-expression, creativity, and confidence. Through this brand, I’m excited to share my work, connect with others who love beauty, and eventually offer products, tips, or services that empower others to feel confident in their skin. This is just the beginning, and I can’t wait to grow and bring my vision to life.
 
 <img width="480" height="372" alt="image" src="https://github.com/user-attachments/assets/c36b801c-da2a-4318-bf7c-139587255c5e" />
-<img width="180" height="180" alt="image" src="https://github.com/user-attachments/assets/16f209fd-3fe4-4c27-9603-3f612e6fc120" />
-<img width="240" height="180" alt="image" src="https://github.com/user-attachments/assets/1289a34a-e958-4572-b4fa-316ba7565995" />
 
 
  
@@ -25,5 +23,7 @@ I am seeking to achieve in pursuing a career in pediatric nursing, I aim to prov
   
   https://docs.google.com/document/d/1Fljbx34-faLFSZ8Sed6Quewd17Q-wrAoy6YTnGsnl08/edit?usp=sharing
 
-  #Fun Entertaining Gifs
-  
+  #Fun Entertaining Gifs that describe what I am like on the daily basis!
+  <img width="180" height="180" alt="image" src="https://github.com/user-attachments/assets/f54a3e7c-4d94-45fa-8fe9-e1a30200b041" />
+<img width="240" height="180" alt="image" src="https://github.com/user-attachments/assets/f620e6c2-5d62-4beb-b765-a48c42cfa799" />
+
