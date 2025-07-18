@@ -18,6 +18,10 @@ I am seeking to achieve in pursuing a career in pediatric nursing, I aim to prov
  <img width="467" height="559" alt="image" src="https://github.com/user-attachments/assets/0c98244c-a429-4912-8797-a680c850993c" />
 <img width="436" height="523" alt="image" src="https://github.com/user-attachments/assets/3836c566-1195-4afb-82a9-eaa6964a418e" />
 
+
+Nonprofit Project 
+https://www.canva.com/design/DAGi8iEc5Ag/JEKebsD6DEuDjQil2f9ruA/edit?utm_content=DAGi8iEc5Ag&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
   Educational/Professional Experiences
   Resume -
     https://docs.google.com/document/d/1Fljbx34-faLFSZ8Sed6Quewd17Q-wrAoy6YTnGsnl08/edit?usp=sharing
