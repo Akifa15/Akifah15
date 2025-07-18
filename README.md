@@ -22,5 +22,8 @@ I am seeking to achieve in pursuing a career in pediatric nursing, I aim to prov
 
   Educational/Professional Experiences
   Resume -
+  
   https://docs.google.com/document/d/1Fljbx34-faLFSZ8Sed6Quewd17Q-wrAoy6YTnGsnl08/edit?usp=sharing
+
+  #Fun Entertaining Gifs
   
